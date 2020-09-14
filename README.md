@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+What makes me tick you ask? 🤗:
+
 - 🔭 I’m currently working on a series of web apps and other amazing web dev projects!
 - 🌱 I’m currently learning HTML, CSS, Javascript and React.
 - 👯 I’m looking to collaborate on on exciting software engineering projects 🤓.

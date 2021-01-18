@@ -9,4 +9,4 @@ What makes me tick you ask? 🤗:
 - 💬 Ask me about anything!
 - 📫 How to reach me: alan.kelechi@gmail.com.
 - 😄 Pronouns: Him/He 💆🏾‍♂️.
-- ⚡ Fun fact: When I am not face deep debugging code or playing with APIs, you will catch me playing my favorite video games (COD or PES) or watching my favorite TV shows.
+- ⚡ Fun fact: When I am not face deep debugging code or playing with APIs, you will catch me playing my favorite video games (Horizon Zero Dawn, COD, God of War) or watching my favorite TV shows.
